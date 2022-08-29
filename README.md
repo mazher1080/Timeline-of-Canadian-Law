@@ -1,4 +1,4 @@
-# Timeline of Canadian-Law
+# Timeline of Canadian Law
 
 
 A timeline showcasing pivotal acts or events that shaped law in Canada as it exists today. 
